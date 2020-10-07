@@ -15,9 +15,9 @@
 ------
 :heart: :point_right: 【热饭TV】 ：http://refan114.com
 ------
-:heart: :point_right: 【telegram】 ： @RJbarent
+:heart: :point_right: 【联系方式】
 ------
-:heart: :point_right: 【邮箱联系方式】 ：
+:heart: :point_right: 【telegram】 ： @RJbarent
 ------
 :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
 ==
